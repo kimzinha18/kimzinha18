@@ -11,7 +11,8 @@
 - ⚡ Curiosidade: amo o stitch
 
 
-![](https://tenor.com/62nM.gif)
+
 
    [ALURA](WWW.alura.com.br)
-  ![](https://tenor.com/62nM.gif)      ![](https://tenor.com/rQ5ctvtV5td.gif)   
+  ![]([https://tenor.com/62nM.gif](https://media1.tenor.com/m/zhKaH8g5z1kAAAAd/cappies-the-cappies.gif))  
+  ![]([https://tenor.com/rQ5ctvtV5td.gif](https://media.tenor.com/lhxrDbeO5W0AAAAj/thinking-of-you-miss-you.gif))   
